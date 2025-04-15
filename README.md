@@ -26,7 +26,7 @@
 
 📕 **Experience as a Student Leader**
 + **The monitor of the master's degree graduate class of grade 2023** (Since 2023)
-+ **The 5-star docent of the college students' volunteer explanation group** (Since 2023)
++ **The 5-star docent of Harbin Military Engineering Institute Museum** (Since 2023)
 + **The league branch secretary of the class** (2020-2021)
 
 <!--
