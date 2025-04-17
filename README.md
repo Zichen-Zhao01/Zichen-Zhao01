@@ -14,7 +14,7 @@
 
 📫 **How to reach me**:
 
-- Email(邮箱): zichen_zhao2022@163.com; zichenzhao2023@gmail.com
+- Email(邮箱): zichen_zhao2022@163.com; zichenzhao2023@gmail.com; zichenzhao@hrbeu.edu.cn
 
 😄 **Honors (Some representative awards)**:
 + **_The 3rd prize in “HUAWEI Cup” The 22nd China Post-Graduate Mathematical Contest in Modeling_** (**Team leader**) (2024)
