@@ -1,4 +1,4 @@
-## Hi there, I'm Zichen Zhao (赵紫臣 in Chinese) !👋 👋
+## Hi there, I'm Zichen Zhao (赵紫臣 in Chinese) (IEEE Member) ! 👋
 
 
 🔭 **Reseach-wise, I mainly focus on**:
